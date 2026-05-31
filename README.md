@@ -1,6 +1,6 @@
 # Hi 👋, I'm Gustavo Pereira Rodrigues 
 
-🚀 **College student of Universidade Católica de Brasília| with a passion for cybersecurity,games & computers**  
+🚀 **College student of Universidade Católica de Brasília | with a passion for cybersecurity,games & computers**  
 🇧🇷 Brazil
 
 ---
