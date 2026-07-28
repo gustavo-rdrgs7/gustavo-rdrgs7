@@ -20,7 +20,7 @@
 
 ## 🧠 What I do
 
--   🎓 Studying software Engineering at the third semester at Universidade Católica de Brasília 
+-   🎓 Studying software Engineering at the fourth semester at Universidade Católica de Brasília 
 
 -   🚀 I stay focused to learning a lot about network engineering and cybersecurity because one of my dreams is be a good worker in this area that i love it​
 
